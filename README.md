@@ -5,3 +5,6 @@
 links:
 </p>
 https://sinfullamb.straw.page https://sinfulgoat.straw.page/ https://infestissumam.atabook.org/ https://en.pronouns.page/@sinfullamb
+<p align="center">
+ <img width="460" height="300" src="https://media1.tenor.com/m/uaT_rWNIIjEAAAAC/cultofthelamb-crown.gif"
+</p>
