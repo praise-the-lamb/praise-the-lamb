@@ -1,14 +1,18 @@
 <p align="center">
  <img width="460" height="300" src="https://media1.tenor.com/m/WO0bc_m9OIUAAAAC/wheres-my-husband-wheres-tobias.gif"
 </p>
-<p align="center">
- https://praise-the-lamb.straw.page </p>
-<p align="center">
- https://praise-the-goat.straw.page/ </p>
-	<p align="center">
- https://infestissumam.atabook.org/ </p>
-<p align="center"> https://en.pronouns.page/@praise-the-lamb </p>
-<p align="center"> https://spacehey.com/seveninchesofsatanicpanic <p></p>
+
+                                       [strawpage](https://praise-the-lamb.straw.page/)
+
+                                       [ponytown infp](https://praise-the-goat.straw.page/)
+
+                                       [atabook](https://infestissumam.atabook.org/)
+
+                                       [pronouns page](https://en.pronouns.page/@praise-the-lamb)
+
+                                       [spacehey](https://spacehey.com/seveninchesofsatanicpanic)
+
+
 <p align="center">
  <img width="460" height="300" src="https://media1.tenor.com/m/uaT_rWNIIjEAAAAC/cultofthelamb-crown.gif"
 </p>
