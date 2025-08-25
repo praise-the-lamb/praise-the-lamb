@@ -4,7 +4,7 @@
 <p align="center">
 links:
 </p>
-(https://praise-the-lamb.straw.page https://praise-the-goat.straw.page/ https://infestissumam.atabook.org/ https://en.pronouns.page/@praise-the-lamb https://spacehey.com/seveninchesofsatanicpanic 
+i cant link texts help https://praise-the-lamb.straw.page https://praise-the-goat.straw.page/ https://infestissumam.atabook.org/ https://en.pronouns.page/@praise-the-lamb https://spacehey.com/seveninchesofsatanicpanic 
 <p align="center">
  <img width="460" height="300" src="https://media1.tenor.com/m/uaT_rWNIIjEAAAAC/cultofthelamb-crown.gif"
 </p>
