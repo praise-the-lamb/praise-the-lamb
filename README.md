@@ -1,8 +1,10 @@
 <p align="center">
  <img width="460" height="300" src="https://media1.tenor.com/m/WO0bc_m9OIUAAAAC/wheres-my-husband-wheres-tobias.gif"
-</p>
+	 </p>
 
-	
+		
+                                     [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&size=15&pause=1000&color=F70000&width=435&lines=Join+my+cult+now.)](https://git.io/typing-svg)
+
                                        [strawpage](https://praise-the-lamb.straw.page/)
 
                                        [ponytown info](https://praise-the-goat.straw.page/)
