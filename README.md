@@ -17,6 +17,8 @@
 
                                        [spacehey](https://spacehey.com/seveninchesofsatanicpanic)
 
+                                      [rentry.co](https://rentry.co/praise-the-lamb)
+
                                        i post a lot of bulletins on spacehey
 						
 <p align="center">
