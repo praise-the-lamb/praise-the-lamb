@@ -19,7 +19,7 @@
 
                                       [rentry.co](https://rentry.co/praise-the-lamb)
 
-                                       i post a lot of bulletins on spacehey
+                                   
 						
 <p align="center">
  <img width="460" height="300" src="https://media1.tenor.com/m/uaT_rWNIIjEAAAAC/cultofthelamb-crown.gif"
