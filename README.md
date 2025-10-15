@@ -19,7 +19,14 @@
 
                                       [rentry.co](https://rentry.co/praise-the-lamb)
 
-                                   
+                                   <p align="center">
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31rzt2amg34rzeq4p7bipamyjlca&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31rzt2amg34rzeq4p7bipamyjlca&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=ff0000&bar_color_cover=true&mode=light">
+  </a>
+</p>
+
+</p>
 						
 <p align="center">
  <img width="460" height="300" src="https://media1.tenor.com/m/uaT_rWNIIjEAAAAC/cultofthelamb-crown.gif"
