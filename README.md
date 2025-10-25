@@ -7,7 +7,7 @@
 
                                        [strawpage](https://praise-the-lamb.straw.page/)
 
-                                       [ponytown info](https://praise-the-goat.straw.page/)
+                                       [ponytown info](https://rentry.co/abaddon666)
 
                                        [atabook](https://infestissumam.atabook.org/)
 
