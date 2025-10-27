@@ -11,7 +11,7 @@
 
                                        [atabook](https://infestissumam.atabook.org/)
 
-                                       [pronouns page](https://en.pronouns.page/@praise-the-lamb)
+                                       [pronouns page](https://en.pronouns.page/@wouldnt-you-like)
 
                                        [pronouns cc](https://pronouns.cc/@praise-the-lamb)
 
