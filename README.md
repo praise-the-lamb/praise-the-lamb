@@ -13,7 +13,7 @@
 
                                        [pronouns page](https://en.pronouns.page/@wouldnt-you-like)
 
-                                       [pronouns cc](https://pronouns.cc/@praise-the-lamb)
+                                       [pronouns cc](https://en.pronouns.page/@wouldnt-you-like)
 
                                        [spacehey](https://spacehey.com/seveninchesofsatanicpanic)
 
