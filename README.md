@@ -13,9 +13,7 @@
 
                                        [pronouns page](https://en.pronouns.page/@wouldnt-you-like)
 
-                                       [pronouns cc](https://en.pronouns.page/@wouldnt-you-like)
-
-                                       [spacehey](https://spacehey.com/seveninchesofsatanicpanic)
+                                   
 
                                       
 
