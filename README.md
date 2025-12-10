@@ -14,7 +14,7 @@
 
 <p align="center">
 	
-                            <sup><sub>[strawpage](https://praise-the-lamb.straw.page/)</sub></sup> 🐏 <sup><sub>[pt info](https://rentry.co/one-by-one)</sub></sup> 🐏 <sup><sub>[atabook](https://infestissumam.atabook.org/)</sub></sup> 🐏 <sup><sub>[prns.page](https://en.pronouns.page/@wouldnt-you-like)</sub>
+                            <sup><sub>[strawpage](https://praise-the-lamb.straw.page/)</sub></sup> 🐏 <sup><sub>[rentry](https://rentry.co/one-by-one)</sub></sup> 🐏 <sup><sub>[atabook](https://infestissumam.atabook.org/)</sub></sup> 🐏 <sup><sub>[prns.page](https://en.pronouns.page/@wouldnt-you-like)</sub>
 
 </p>
 
