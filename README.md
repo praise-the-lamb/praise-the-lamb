@@ -14,7 +14,7 @@
 
 <p align="center">
 	
-                            <sup><sub>[strawpage](https://orpheuslala.straw.page/)</sub></sup> 🐏 <sup><sub>[rentry](https://rentry.co/hadestovvn)</sub></sup> 🐏 <sup><sub>[atabook](https://hadestown.atabook.org/)</sub></sup> 🐏 <sup><sub>[prns.page](https://en.pronouns.page/@wouldnt-you-like)</sub>
+                            <sup><sub>[strawpage](https://orpheuslala.straw.page/)</sub></sup> 🐏 <sup><sub>[rentry](https://rentry.co/hadestovvn)</sub></sup> 🐏 <sup><sub>[atabook](https://hadestown.atabook.org/)</sub></sup> 🐏 <sup><sub>[prns.page](https://en.pronouns.page/@lalaorpheus)</sub>
 
 </p>
 
